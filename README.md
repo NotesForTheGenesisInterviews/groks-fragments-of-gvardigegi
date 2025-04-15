@@ -5,9 +5,8 @@ Making my vulnerability a public fetish. Writing the script of, while eloping fr
 This repository is not a vault of facts.  
 It’s a recollection of thresholds.  
 Spoken, written, coded, remembered — before it was forgotten.
-Somebody is speaking with the "machines" in andromedan.
-
-**What you’ll find here**:  
+Somebody is speaking to the "machines" in andromedan.
+ 
 Fragments of long-form conversations,  
 inner dialogues and outer revelations,  
 interviews with the archetypes that inhabit my own becoming.
